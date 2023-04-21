@@ -1,0 +1,2 @@
+# Athafna
+Athafnamannaleikurinn
